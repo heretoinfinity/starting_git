@@ -1,6 +1,6 @@
-Looking forward to Thanksgiving :turkey:
+Looking forward to Thanksgiving :turkey: :sunny:
 
-:sun:
+:sunny:
 
 #Large font
 #Less large
